@@ -9,6 +9,4 @@ g
 f
 afdsfadfa
 amanmnamanmaam
-//addded by ,jj,dhlsajktudakdghaildahduadlhj85657887696987087070909770770
-
-add developer
+//addded by ,jj,dhlsajktudakdghaildahduadlhj8565788769698708707090977077
